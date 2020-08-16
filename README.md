@@ -2,4 +2,4 @@
 The Sweet Escape
 https://wannibemanisha.itch.io/the-sweet-escape
 
-https://studio.youtube.com/video/qerpTjF5sfc/edit
+https://www.youtube.com/watch?v=qerpTjF5sfc
